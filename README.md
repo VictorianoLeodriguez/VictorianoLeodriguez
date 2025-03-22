@@ -5,5 +5,4 @@
 - 📫 How to reach me ev_leodriguez@hotmail.com ("Personal email"), evictorianoleo@gmail.com ("business email").
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: I like to stay up at night, just thinking about how beautifull the universe is, so much life, so many things to learn.
-- My pals @Victor-MFr, @DanRelief
-- So this is me, I don't know what you expected.
+
