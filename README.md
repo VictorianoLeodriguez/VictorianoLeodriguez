@@ -67,13 +67,3 @@ If your project pushes limits, I’m interested.
 
 * **Personal:** [ev_leodriguez@hotmail.com](mailto:ev_leodriguez@hotmail.com)
 * **Business:** [evictorianoleo@gmail.com](mailto:evictorianoleo@gmail.com)
-
----
-
-## 😄 Pronouns
-
-He / Him
-
----
-
-> "Challenge-driven learning is the fastest way to evolve as a developer."
